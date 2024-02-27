@@ -1,1 +1,1 @@
-![ezgif-2-2bb7a0f157](https://github.com/Team7InventorySystem/.github/assets/150554741/ae42efb4-507b-46d8-b595-52a3bda7f616)
+![ezgif-2-870a9159f7](https://github.com/Team7InventorySystem/.github/assets/150554741/f8d8e332-ae8a-41d8-9285-c0ab5723ad28)
